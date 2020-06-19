@@ -1,1 +1,1 @@
-# durkheim
+# Sociology Studio
